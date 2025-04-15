@@ -16,7 +16,7 @@ The tension reportedly began escalating after Prince Harry and Meghan Markle ste
 - Public silence from King Charles
 - Royal protocols being tested
 
-> 📌 **LSI Keywords**: Prince Harry family conflict, King Charles royal duties, Royal family fallout, Meghan Markle and Harry, Harry memoir Spare
+> 📌 ** Keywords**: Prince Harry family conflict, King Charles royal duties, Royal family fallout, Meghan Markle and Harry, Harry memoir Spare
 
 ---
 
@@ -26,7 +26,7 @@ According to reports from **BBC** and **The Guardian**, there have been "private
 
 > **Long-tail keyword**: Are Prince Harry and King Charles on speaking terms in 2025?
 
-> ✅ **Soft CTA**: *Curious about how other royal families handle public drama? [Find your perfect match in a royal-style dating app!](#)*
+> ✅ *Curious about how other royal families handle public drama? [Find your perfect match in a royal-style dating app!](https://redirectingirl.netlify.app/)*
 
 ---
 
@@ -46,7 +46,7 @@ This isn’t just a royal story — it’s a **relatable family conflict** on a 
 
 According to **Royal commentator Richard Fitzwilliams**, "The bond between Charles and Harry is not broken — just bruised." However, some believe King Charles is “focused on the crown” rather than reconciliation.
 
-> 📌 **LSI Keywords**: Prince Harry royal drama, Charles and Harry latest news, Royal expert opinions, Monarchy and family, Royal reconciliation
+> 📌 ** Keywords**: Prince Harry royal drama, Charles and Harry latest news, Royal expert opinions, Monarchy and family, Royal reconciliation
 
 ---
 
@@ -82,7 +82,7 @@ Stay tuned — the royal drama isn’t over yet.
 
 ---
 
-> ❤️ **CTA**: *If this royal story tugged at your emotions, imagine finding someone who truly understands you. [Find your perfect match today!](#)*
+> ❤️ *If this royal story tugged at your emotions, imagine finding someone who truly understands you. [Find your perfect match today!](https://redirectingirl.netlify.app/)*
 
 > 🔍 **Trending Searches Right Now**:
 - "Is Prince Harry going back to the UK?"
